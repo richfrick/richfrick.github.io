@@ -1,1 +1,0 @@
-# richfrick.github.io
